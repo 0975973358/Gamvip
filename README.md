@@ -1,2 +1,0 @@
-# Gamvip
-Giải đăc biệt
